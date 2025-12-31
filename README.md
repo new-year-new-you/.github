@@ -1,1 +1,3 @@
-# .github
+# *New Year New You | Realign Your Priorities with God's Purpose - Joyce Meyer*
+## *Discover how to transform your life in the new year by establishing God-centered priorities, studying scripture, and aligning your choices with biblical principles for lasting change. Start your year with purpose. Discover 15 motivational and spiritual steps to personal transformation, inner peace, and life-changing priorities.* [More details…](https://spiritualkhazaana.com/web-stories/new-year-new-you/)
+## #NewYearNewYou #GodsFirstPriority #FaithAndPurpose #JoyceMemory #BibleStudy #SpiritualTransformation #PriorityMatters #GodFirst #FamilyFirst #SelfCare #GivingAndTithing #InnerLife #PersonalGrowth #NewBeginnings #2026Goals #FaithJourney #RighteousnessAndPeace #ChristianLiving #TransformYourLife #SpiritualMaturity #BibleTruths #PurposefulLiving #ChangingPatterns #AlignWithGod #EmbraceChange
